@@ -7,7 +7,7 @@
 
 
 <p align="center">
-<img src="https://supplies.ju.mp/assets/images/tiny1/5d28aa7a.gif?v=1c1ba870"><sup>i'm usually hanging out in the sig area, or chilling with random ppl in the jjk area</sup><img src="https://supplies.ju.mp/assets/images/gallery04/3628e352.gif?v=1c1ba870">
+<img src="https://supplies.ju.mp/assets/images/tiny1/5d28aa7a.gif?v=1c1ba870"><sup>i'm usually hanging out in the jjk area, or chilling with random ppl in the sig area</sup><img src="https://supplies.ju.mp/assets/images/gallery04/3628e352.gif?v=1c1ba870">
 
 <p align="center">
  <sup>
@@ -18,7 +18,7 @@
  <a href="https://www.tumblr.com/c4lstar">1.</a> 2. 3.
   <p align="center">
    <sup>
-   "<i>one day, i will stop falling in love, with, <ins>$${\color{blue}you.}$$</ins></i>"
+   "<i>and I don't want  <ins>$${\color{blue}your}$$</ins> pity, I just want somebody near me,</i>"
     <br/>
   <p align="center">
    <img src="https://supplies.ju.mp/assets/images/gallery04/3cc2c9b0.gif?v=1c1ba870">
