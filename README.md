@@ -11,11 +11,8 @@
 
 <p align="center">
  <sup>
-  links are wips!
+  geto fictkin!
  </sup>
-<p align="center">
- <sup>
- <a href="https://www.tumblr.com/c4lstar">1.</a> 2. 3.
   <p align="center">
    <sup>
    "<i>and I don't want  <ins>$${\color{blue}your}$$</ins> pity, I just want somebody near me,</i>"
@@ -24,21 +21,21 @@
    <img src="https://supplies.ju.mp/assets/images/gallery04/3cc2c9b0.gif?v=1c1ba870">
 <p align="center">
   <sup>
- any/all - minor - blk 
+ any/he - minor - blk 
  </sup>
 
 
 <p align="center">
   <sup>
- <img src="https://supplies.ju.mp/assets/images/tiny1/064f6c03.gif?v=1c1ba870">jjk, dungeon meshi and sig enthusiast<img src="https://supplies.ju.mp/assets/images/tiny1/7ec3c3fa.gif?v=1c1ba870">
+ <img src="https://gifcity.carrd.co/assets/images/gallery288/3e20f2a4.gif?v=e3c0bc0f">jjk, dungeon meshi and sig enthusiast<img src="https://gifcity.carrd.co/assets/images/gallery06/82dd8c72.gif?v=e3c0bc0f">
  </sup>
 <br/>
 <p align="center">
-<img src="https://tomomi.neocities.org/blink/b13.gif"><img src="https://supplies.ju.mp/assets/images/gallery14/a87f073d.gif?v=1c1ba870">
+<img src="https://gifcity.carrd.co/assets/images/gallery32/870c8cb2.png?v=e3c0bc0f"><img src="https://gifcity.carrd.co/assets/images/gallery32/97fbf2f8.jpg?v=e3c0bc0f">
  <br/>
  <p align="center">
   <img src="https://supplies.ju.mp/assets/images/gallery09/2a4c8e54_original.png?v=1c1ba870">
-<p align="center"> <img src="https://tomomi.neocities.org/divider/div60.gif">
+<p align="center"> <img src="https://gifcity.carrd.co/assets/images/gallery44/fae2f7f0.gif?v=e3c0bc0f">
 
  </sup>
 
