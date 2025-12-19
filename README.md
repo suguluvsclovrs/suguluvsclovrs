@@ -41,5 +41,5 @@
 
 
 
- <img align="right" src="https://i.postimg.cc/8zYFsLNJ/pony-town-MY-ONE-AND-ONLY-JJK-lie-zzz-toy268-5x.gif" width="200"> <br/> <br/> <br/> <br/> <img align="right" img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/cupidexpress?color=blue&style=plastic&label=followers"/>
+ <img align="right" src="https://i.postimg.cc/vZrjZtrG/pony-town-studying-comm-site-lie-zzz-toy336-5x.gif" width="200"> <br/> <br/> <br/> <br/> <img align="right" img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/cupidexpress?color=blue&style=plastic&label=followers"/>
 
